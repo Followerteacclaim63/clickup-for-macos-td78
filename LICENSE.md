@@ -1,4 +1,4 @@
-#  
+#  ClickUp for macOS updated Script - AI assistant and dark mode is the best ClickUp for macOS script, featuring AI assistant and dark mode. Safe, efficient, and optimized for macOS
 
 
 
